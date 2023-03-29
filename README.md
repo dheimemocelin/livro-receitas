@@ -1,3 +1,0 @@
-#Livro de Receitas#
-
-Strogonof
